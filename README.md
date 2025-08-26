@@ -1,0 +1,2 @@
+# royxat
+royxat boyicha amallar
